@@ -1,0 +1,2 @@
+# SistemaCadastroNecro2026
+
